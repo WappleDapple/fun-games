@@ -1,2 +1,3 @@
 # fun-games
-FUN GAMES
+before you start playing games...
+this dont all work on school stuff alr
